@@ -24,7 +24,7 @@ Hi, I'm @Adamkhabeer
 **📫 How to reach me:**
 - Email: adamkhaleepher@outlook.com
 - Twitter: @adamkhabeeradam
-- LinkedIn: www.linkedin.com/in/adam-khabeerremoved]
+- LinkedIn: www.linkedin.com/in/adam-khabeer
 
 **😄 Pronouns:** we
 
